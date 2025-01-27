@@ -1,1 +1,4 @@
-Hello. This github, new of Mine. Dead is I. But I try
+This is my new account      ╱|、
+I don't use arch btw      (˚ˎ 。7  
+                          |、˜〵          
+                          じしˍ,)ノ
